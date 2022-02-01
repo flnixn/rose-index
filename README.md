@@ -1,1 +1,1 @@
-copy paste from random guy have fun.
+copy paste from random forum have fun.
